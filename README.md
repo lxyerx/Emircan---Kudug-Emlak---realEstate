@@ -1,1 +1,1 @@
-# Emircan - Kudug Emlak - RealEstate
+# Emircan - Emlak - RealEstate
